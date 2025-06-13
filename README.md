@@ -1,0 +1,1 @@
+# TDE-02-RESOLU-AO-DE-EQUA-AO-DO-1-e-2-Grau
